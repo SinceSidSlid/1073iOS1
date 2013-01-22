@@ -6,9 +6,9 @@ David Evans / dse4@pitt.edu
 Three Facts About Me
 ---
 
-*   I was born in Oakland, just a few blocks from the Cathedral
-*   I have two dogs.
-*   I can't stand when people whistle in public.
+*   I am a fan of both Philadelphia and Pittsburgh sports teams, sue me.
+*   I'm a pretty big fighting game fan. I treat Evo like its the Super Bowl.
+*   I enjoy Settlers of Catan and wish I knew more people that played.
 
 ---
 
